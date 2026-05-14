@@ -1,4 +1,4 @@
-#  
+#  Experience blade ball like never before with new Script for blade ball, the #1 Script. Includes esp and speed for unbeatable performance.
 
 
 
